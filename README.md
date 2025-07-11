@@ -21,7 +21,7 @@ Powered by **Vishwas Welfare Foundation**
 
 📞 Contact: +91-6268594514  
 📧 Email: vishwaswelfare@email.com  
-🌐 Website: [apnokimadad.joonweb.com](https://apnokimadad.joonweb.com)
+🌐 Website: [apnokimadad.joonweb.com](https://apnokimadad)
 
 ---
 
